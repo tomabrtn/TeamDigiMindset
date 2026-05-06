@@ -1,0 +1,2 @@
+# TeamDigiMindset
+Pro jednoduchost
